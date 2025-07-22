@@ -1,3 +1,3 @@
 Abhin is the goat
 Abhishek Reji
-Kp is gay
+Kp is batman
